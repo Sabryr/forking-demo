@@ -7,7 +7,7 @@
 - **4 tablespoons** pepper
 
 
-## Procedure
+## Instructions
 
 1. **Prepare the Mushrooms:**
    - In a large pot, heat the olive oil or butter over medium heat. Add the
